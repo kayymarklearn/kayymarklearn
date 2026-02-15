@@ -1,4 +1,4 @@
-## Hi there 👋 I'm Kayy Mark 😄
+## Hi there 👋 I'm Mark Konlan 😄
 
 🐍 A Python learner who enjoys building small projects and learning by doing  
 🧩 I also like playing **CTFs** and solving technical challenges for fun.
