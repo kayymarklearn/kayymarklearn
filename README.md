@@ -9,7 +9,7 @@
 - Open to collaborating on projects that are fun, challenging, and educational
 
 ### Let's connect
-- 📧 Email: **kayymark.learn@gmail.com**
+- Email: **kayymark.learn@gmail.com**
 
 ### Fun facts
 - Forex trader
